@@ -1,1 +1,5 @@
-Need to find out what ingredients we need for making corn tortillas
+Corn tortillas
+
+2 cups Masa Harina
+1.5 cups of warm water
+1/2 teaspoon salt
